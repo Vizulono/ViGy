@@ -1,3 +1,5 @@
 - NOTE THIS IS NOT A HACK BUT IT CAN GET YOU BANNED CUZ AGAISNT TOS MAKE SURE YOUR ANTI VIRUS IS OFF PLEASE
 - DM 6bloccy. ON DISCORD IF YOU HAVE ANY PROBLEMS
-[image](https://github.com/5Killa/Ping-Chooser/assets/154239937/4d6b05ef-bf67-48ab-8f42-2b63d6d42623)
+
+
+(https://github.com/5Killa/Ping-Chooser/assets/154239937/4d6b05ef-bf67-48ab-8f42-2b63d6d42623)
