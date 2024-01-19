@@ -2,4 +2,5 @@
 - DM 6bloccy. ON DISCORD IF YOU HAVE ANY PROBLEMS
 
 
-(https://github.com/5Killa/Ping-Chooser/assets/154239937/4d6b05ef-bf67-48ab-8f42-2b63d6d42623)
+![image](https://github.com/5Killa/Ping-Chooser/assets/154239937/0d399973-dd3d-446b-91ae-4b08f0ee131b)
+
